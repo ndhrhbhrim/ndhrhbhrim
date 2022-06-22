@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-You can call me Ain :simple_smile: 
+You can call me Ain :grin: 
 I love cats :heart_eyes_cat: 
 My favourite color is green :green_heart:
 I like to draw and coloring :art: so I hope I can get to pursue myself in Graphic Designer jobscope :pray:
