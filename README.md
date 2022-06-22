@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+You can call me Ain :simple_smile: 
+I love cats :heart_eyes_cat: 
+My favourite color is green :green_heart:
+I like to draw and coloring :art: so I hope I can get to pursue myself in Graphic Designer jobscope :pray:
+I hope that I can score this course will full colors and graduate on time with my friends :tulip:
 <!--
 **ndhrhbhrim/ndhrhbhrim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
